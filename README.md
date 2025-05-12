@@ -1,1 +1,1 @@
-gofile.io/d/2CRYDa
+[Link](https://gofile.io/d/2CRYDa)
