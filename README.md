@@ -1,3 +1,1 @@
-Thanks
-
-gofile.io/d/qeUv8d
+gofile.io/d/2CRYDa
